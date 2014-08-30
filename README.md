@@ -1,4 +1,4 @@
-clovervidia's caption
+clovervidia's captions
 ================
 
 Great, I'm here. Now what?
